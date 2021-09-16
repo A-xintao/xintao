@@ -1,1 +1,4 @@
-# xintao
+- 👋 Hi, I’m @A-xintao
+- 👀 I'm interested in collecting pillows
+- 🌱 I’m currently learning how to work in an English-language environment
+- 📫 Everyone can go from xintao@pony.ai contacted me
